@@ -1,4 +1,2 @@
-��#� �a�s�d�
-�
-�
+asd
 https://suraiyakawsary.github.io/asd/
